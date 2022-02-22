@@ -5,6 +5,6 @@ i had interest on
 - 3D animation
 
 
-lets work together!
+lets work together👌!
 @grasiocarel74@gmail.com
 
